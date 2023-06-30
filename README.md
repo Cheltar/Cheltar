@@ -1,7 +1,6 @@
 
 <summary>
-🥶 About Me:
-Coming Soon Cape Istirahat Dulu🗿
+🥶 Gabut Bang
 </summary>
 
 <summary>
